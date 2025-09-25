@@ -1,1 +1,1 @@
-https://now.gg
+https://google.com
